@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 colleenbanzhof@gmail.com<br>
-(LinkedIn)[linkedin.com/in/colleenbanzhof]<br>
+<br>
+(LinkedIn)[www.linkedin.com/in/colleenbanzhof]<br>
 (952) 451-4055 
 
 
