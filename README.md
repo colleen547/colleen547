@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-colleenbanzhof@gmail.com <br>
-(linkedin.com/in/colleenbanzhof) <br>
+colleenbanzhof@gmail.com<br>
+(LinkedIn)[linkedin.com/in/colleenbanzhof]<br>
 (952) 451-4055 
 
 
