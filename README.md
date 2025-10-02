@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @colleen547
 - 👀 I’m interested in leveraging Data Analytics & Visualization to make intelligent business decisions
-- 🌱 I’m currently learning several programming languages
+- 🌱 I’ve learned several programming languages
 - 💞️ I’m looking to collaborate on Supply Chain related projects
 - 📫 How to reach me ...<br>
 colleenbanzhof@gmail.com<br>
